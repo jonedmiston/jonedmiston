@@ -2,7 +2,7 @@
 
 # 👨‍👩‍👦‍👦 About Me
 1. I was born in Tucson, AZ but currently live in Peoria, AZ.
-2. Married with two boys.
+2. Married with two adult boys.
 3. Nothing beats the 80's (especially the music)
 4. Love learning and growing my knowledge of the latest technologies.
 5. Hobbies: Reading
